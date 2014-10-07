@@ -1,3 +1,3 @@
 ###Liam Kane-Grade's Homepage
 
-***(My Twitter)***[https://twitter.com/lkanegrade]
+[***My Twitter***](https://twitter.com/lkanegrade)
